@@ -1,0 +1,56 @@
+# あらき – 一騎当千
+
+> **歌詞登録ステータス：プレーン歌詞のみ**
+
+```
+乱れた呼吸 慌ただしく
+鼓動急かす under the moon
+こぼれた悲鳴 怯えだす眼
+誘う 生死の運命
+君の身体 流れるblood
+まき散らす香り so mad
+もう後戻りできない世界
+it begins! are you ready?
+本能は望む more アクセンクトウ
+どんな症状さえ all you want
+ホラ本能は望む more ヨソクフノウ
+it's your turn in this world ah…
+心ゆくまで go ahead 限界はない
+終わりなく try again and again you gonna fight
+ありとあらゆる術で ah…
+目の前を邪魔する全てをまとめてロックオン!
+イイナリのデイズ ありふれたGAME
+それはまるで it's like a slave
+潔く 赤色のスープ
+飲み干してごらんよ さぁ
+震えるその身体 be delight
+想像超えるくらい
+It's your time be riding your high
+拒む理由なんてない
+細胞が望む more ガシンショウタン
+鼓動激しく falling down
+ホラ細胞が望む moreクシンサンタン
+you would be fuckin' crazy
+心ゆくまで go ahead 限界はない
+終わりなく try again and again you gonna fight
+ありとあらゆる術で ah…
+思いのまま蹴散らしit's FINE
+目指すのはもっと上へ 懸命なLIVE
+何度だって try again and again until you die
+弾け飛びそうな衝動を ah…
+目の前に立ちはだかる全てに今解放
+迎えてあげる come on 手加減はしないかも
+期待以上の対応 かわいがってあげる
+君が手にした才能 閉じ込めている大脳
+弄ってあげましょう come on 本性
+さぁ wake up now!
+心ゆくまで go ahead 限界はない
+終わりなく try again and again you gonna fight
+ありとあらゆる術で ah…
+思いのまま蹴散らし it's FINE
+目指すのはもっと上へ 懸命なLIVE
+何度だって try again and again until you die
+派手にかましちゃえばいいよ ah…
+目の前を邪魔する全てをまとめてロックオン!
+見てるだけの弱者共よファックオフ!
+```
