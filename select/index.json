@@ -1,0 +1,16 @@
+{
+  "version": 1,
+  "base_track": "一騎当千",
+  "base_artist": "あらき",
+  "createdAt": "2026-02-13T12:52:09.020144Z",
+  "candidates": [
+    {
+      "id": "petitlyrics_1",
+      "source": "petitlyrics",
+      "title": "一騎当千",
+      "artist": "ARAKI",
+      "has_synced": false,
+      "path": "select/pl_01_一騎当千_ARAKI.txt"
+    }
+  ]
+}
